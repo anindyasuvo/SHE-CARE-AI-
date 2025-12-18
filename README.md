@@ -1,3 +1,3 @@
 # SHE-CARE-AI-
-TRY IT NOW 
-https://pyvgkqwa.gensparkspace.com/
+## 🪄 Try It Now
+👉 **[Launch App](https://pyvgkqwa.gensparkspace.com/)**
